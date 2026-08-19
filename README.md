@@ -13,4 +13,3 @@ Hate Yourself - TV girl
 
 
 
-I repeat, I'm not looking for friends. But if you want to chat, I'll be there.       
