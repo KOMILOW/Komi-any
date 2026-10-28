@@ -1,15 +1,1 @@
-[![8d6d0fb76b5b0f3d662fbc3576fb15cd.jpg](https://i.postimg.cc/sD3yhw2C/8d6d0fb76b5b0f3d662fbc3576fb15cd.jpg)](https://postimg.cc/XX1TMKFs)
-
-
-[![SUx104-2x.jpg](https://i.postimg.cc/4yD9Wq2B/SUx104-2x.jpg)](https://postimg.cc/dZ931HYy) 
-Hate Yourself - TV girl
-[![sound-equalizer.gif](https://i.postimg.cc/Y9wC0Fyj/sound-equalizer.gif)](https://postimg.cc/CZmg6R0V)
-
-
-
-
-[![S600x-U-2x.jpg](https://i.postimg.cc/bwQQBYPX/S600x-U-2x.jpg)](https://postimg.cc/MnpMcSXt) Get Off On The Pai - Weezer
-[![sound-equalizer.gif](https://i.postimg.cc/Y9wC0Fyj/sound-equalizer.gif)](https://postimg.cc/CZmg6R0V)
-
-
-
+<a href="https://ibb.co/Ps39H9rn"><img src="https://i.ibb.co/CpNMGMwZ/292-20261028221540.png" alt="292-20261028221540" border="0"></a>
